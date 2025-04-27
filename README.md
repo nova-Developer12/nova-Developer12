@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @nova-Developer12
+- 👀 I’m interested in:Games like schedule 1
+- 🌱 I’m currently learning:Modeling 
+- 💞️ I’m looking to collaborate on:Schedule 1 
+- 📫 How to reach me:My discord=_nova_825
+- 😄 Pronouns:He-Him-His
+- ⚡ Fun fact:I broke my toe once to a brick
